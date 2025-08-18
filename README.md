@@ -1,4 +1,4 @@
-heyyy what's up
+heyyy
 
   **eternal c+h | ru + eng**
 
