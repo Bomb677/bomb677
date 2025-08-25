@@ -9,4 +9,4 @@ I'm always happy to chat! maybe...
 
 <img width="99" height="56" alt="17555174624549028005152209392704" src="https://github.com/user-attachments/assets/4382144c-2307-4531-b122-ae7f84f6eec6" /> ![17555206554033847042642288734889](https://github.com/user-attachments/assets/c133c3ed-0693-47e2-af0d-487d49352a16)
 
-main Fandoms; Half life-HLVRAI-Freman mind , Breaking Bad, Alien Stage, TF2 or TFC, Date everything,
+main Fandoms; Half life-HLVRAI-Freman mind , Breaking Bad, Alien Stage, TF2 or TFC, Date everything, Postal, cry of fear, ultrakill, jjba
