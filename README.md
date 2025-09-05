@@ -14,4 +14,5 @@ I'm always happy to chat! maybe...
 
 main Fandoms; Half life-HLVRAI-Freman mind , Breaking Bad, Better call Saul, Alien Stage, TF2 or TFC, Date everything, Postal, cry of fear, ultrakill, jjba, Chiikawa, Mgs 
 
-![1756083199230644768718919456353](https://github.com/user-attachments/assets/9af42cac-3b63-4a2e-90ce-ffaba6f8dce1)
+![17570941364556996823001427113996](https://github.com/user-attachments/assets/23b45c2b-abc8-44ac-916e-f9e0a03a5b21)
+
