@@ -1,7 +1,7 @@
 heyyy !!  ^_^
 
 
-  **eternal c+h | ru + eng**
+  **eternal c+h | ru + bad eng**
 
 ![17555161290943897091158877823131](https://github.com/user-attachments/assets/0cc868bc-b1b1-4b4a-8a3b-c940462fc59d)
 
