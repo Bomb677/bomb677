@@ -14,7 +14,7 @@ very big barney^_^ <img width="198" height="112" alt="17579347282031598252515582
 
 
 
-main Fandoms; Half life-HLVRAI-Freman mind , Breaking Bad, Better call Saul, Alien Stage, TF2 or TFC, Date everything, Postal, cry of fear, ultrakill, jjba, Chiikawa, Mgs 
+main Fandoms; Half life-HLVRAI-Freman mind , Breaking Bad, Better call Saul, Alien Stage, TF2 or TFC, Date everything, Postal, cry of fear, ultrakill, jjba, Chiikawa, Mgs , hotline miami 
 
 ![17570941364556996823001427113996](https://github.com/user-attachments/assets/23b45c2b-abc8-44ac-916e-f9e0a03a5b21)
 
