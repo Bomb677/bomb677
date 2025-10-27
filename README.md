@@ -3,7 +3,8 @@ heyyy !!  ^_^
 
   **eternal c+h | ru + bad eng**
 
-https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExcXl0c3BpNXh3ZTJpaGJyOGlhencyMTJvZjZsNTR5bmVsaW0yaDd6byZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/0GKUVqIWLcCk6h3UEk/giphy.gif
+![Uploading giphy.gif…]()
+
 
 не ищу знакомств но готов часто сидеть с вами на зоне !!
 
