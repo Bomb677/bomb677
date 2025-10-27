@@ -8,7 +8,8 @@ heyyy !!  ^_^
 
 не ищу знакомств но готов часто сидеть с вами на зоне !!
 
-<img width="99" height="56" alt="17555174624549028005152209392704" src="https://github.com/user-attachments/assets/4382144c-2307-4531-b122-ae7f84f6eec6" /> ![17555206554033847042642288734889](https://github.com/user-attachments/assets/c133c3ed-0693-47e2-af0d-487d49352a16) ![17560829522302379108004747604976](https://github.com/user-attachments/assets/ba6465e6-a4c8-455a-bf70-6eab8d93fd1e)
+<img width="99" height="56" alt="17555174624549028005152209392704" src="https://github.com/user-attachments/assets/4382144c-2307-4531-b122-ae7f84f6eec6" /> ![17555206554033847042642288734889](https://github.com/user-attachments/assets/c133c3ed-0693-47e2-af0d-487d49352a16) ![17560829522302379108004747604976](https://github.com/user-attachments/assets/ba6465e6-a4c8-455a-bf70-6eab8d93fd1e)![2e7822263cb4b92520c0ba592e07f646](https://github.com/user-attachments/assets/7773c3dd-d3c0-4eb2-ac69-15e9b74adcde)
+
 
 
 
