@@ -1,7 +1,7 @@
 heyyy !!  U.O
 
 
-  **eternal c+h | ru + bad eng | 1 Safe Russia / Safe .**
+  **eternal c+h | ru + bad eng | #1 Safe Russia / Safe server .**
 
 ![17630401575453903626682222786536](https://github.com/user-attachments/assets/dce057b1-f93b-413e-be05-d6b5270322d8)
 
