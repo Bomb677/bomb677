@@ -6,7 +6,8 @@ heyyy !!  U.O
 
   **eternal c+h | ru + bad eng | #1 Safe Russia / Safe server .**
 
-![17630448613304913825461525807602](https://github.com/user-attachments/assets/5b1903dc-7ed6-4e7b-8b90-1b321babfb95)
+![17630454112114065185213745926918](https://github.com/user-attachments/assets/d1dba564-24ed-41eb-b411-13d1c27fefe2)
+
 
 
 
