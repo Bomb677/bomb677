@@ -16,7 +16,7 @@ heyyy !!  U.O
 
 I'm not looking for acquaintances, but I can often sit with you in the zone .  ^_^
 
-main Fandoms; Half life-HLVRAI-Freman mind , Breaking Bad, Better call Saul, Alien Stage, TF2 or TFC, Date everything, Postal, cry of fear, ultrakill, jjba, Chiikawa, Mgs | Metal Gear Solid, hotline miami ,no im not a human,haunted hotel
+main Fandoms; Half life-HLVRAI-Freman mind , Breaking Bad, Better call Saul, Alien Stage, TF2 or TFC, Date everything, Postal, cry of fear, ultrakill, jjba, Chiikawa, Mgs | Metal Gear Solid, hotline miami ,no im not a human,haunted hotel, hazbin hotel (idk)
 <img width="735" height="133" alt="17630411676462355284529338949193" src="https://github.com/user-attachments/assets/3c079558-0cef-47c5-9a36-018e002bbc97" />
 
 dni; Basic DNI + fans of Lololoshka, BTS . 
