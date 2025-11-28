@@ -9,18 +9,12 @@ heyyy !!  U.O
 ![17630455534296335859477814094981](https://github.com/user-attachments/assets/2dcb7ef8-6aa7-4077-93cb-0b7d11253492)
 
 
+dni; Basic DNI + fans of BTS . 
+Pls don't bother me and my friends when we play, ty. 
 
 
-
-
-
-I'm not looking for acquaintances, but I can often sit with you in the zone .  ^_^
-
-main Fandoms; Half life-HLVRAI-Freman mind , Breaking Bad, Better call Saul, Alien Stage, TF2 or TFC, Date everything, Postal, cry of fear, ultrakill, jjba, Chiikawa, Mgs | Metal Gear Solid, hotline miami ,no im not a human,haunted hotel, hazbin hotel (idk)
 <img width="735" height="133" alt="17630411676462355284529338949193" src="https://github.com/user-attachments/assets/3c079558-0cef-47c5-9a36-018e002bbc97" />
 
-dni; Basic DNI + fans of Lololoshka, BTS . 
-Pls don't bother me and my friends when we play, ty. 
 
 ![17630413871921083788884464230437](https://github.com/user-attachments/assets/b6ec2f97-a1ea-47b6-b36d-83e3dbad3596)
 
