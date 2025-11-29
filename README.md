@@ -15,7 +15,8 @@ dni; Basic DNI + fans of BTS .
 Pls don't bother me and my friends when we play, ty. 
 
 
-<img width="735" height="133" alt="17630411676462355284529338949193" src="https://github.com/user-attachments/assets/3c079558-0cef-47c5-9a36-018e002bbc97" />
+![17644445796871519710665654143222](https://github.com/user-attachments/assets/28277b24-0cb3-4aa8-b2d5-51ac9b387246)
+
 
 
 ![17630413871921083788884464230437](https://github.com/user-attachments/assets/b6ec2f97-a1ea-47b6-b36d-83e3dbad3596)
