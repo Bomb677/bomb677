@@ -19,6 +19,7 @@ Pls don't bother me and my friends when we play, ty.
 
 
 
+ me and who :3
 ![17630413871921083788884464230437](https://github.com/user-attachments/assets/b6ec2f97-a1ea-47b6-b36d-83e3dbad3596)
 
    ୨ৎ    Kisses to all!!
