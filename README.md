@@ -6,7 +6,8 @@ heyyy !!  U.O
 
   **always c+h | ru + bad eng | #1 Safe Russia / Safe server .**
 
-![17630455534296335859477814094981](https://github.com/user-attachments/assets/2dcb7ef8-6aa7-4077-93cb-0b7d11253492)
+![1764441167402209793242861389121](https://github.com/user-attachments/assets/42b5f7c4-5fa8-4ee5-b151-54ee3e31add2)
+
 
 
 dni; Basic DNI + fans of BTS . 
