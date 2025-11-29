@@ -11,8 +11,7 @@ heyyy !!  U.O
 
 
 
-dni; Basic DNI + fans of BTS . 
-Pls don't bother me and my friends when we play, ty. 
+dni; Basic DNI + fans of BTS . Please don't be weird.... I have a bad experience with this 
 
 
 ![17644445796871519710665654143222](https://github.com/user-attachments/assets/28277b24-0cb3-4aa8-b2d5-51ac9b387246)
