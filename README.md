@@ -9,6 +9,7 @@ heyyy !!  U.O
 ![17644431681515494926525696138222](https://github.com/user-attachments/assets/c3632dee-01e5-493f-8186-217adb2ce3a9)
 
 
+*I don't mind starting a friendship!!*
 
 
 dni; Basic DNI + fans of BTS . Please don't be weird.... I have a bad experience with this 
