@@ -4,8 +4,6 @@
 heyyy !!  U.O
 
 
-  **always c+h | ru + bad eng | #1 Safe Russia / Safe server .**
-
 ![17644431681515494926525696138222](https://github.com/user-attachments/assets/c3632dee-01e5-493f-8186-217adb2ce3a9)
 
 
