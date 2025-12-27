@@ -1,8 +1,8 @@
 
 
-<img width="2048" height="2048" alt="image" src="https://github.com/user-attachments/assets/52a49b2a-863e-4103-b73e-c1c3783335ab" />
+![17668411309512792899523067557079](https://github.com/user-attachments/assets/31341896-0ad1-43f9-82a6-781ba2954f97)
 
 
 
 
- me and who :3
+ ㅤㅤㅤㅤ HE'S SOO FUNNY
